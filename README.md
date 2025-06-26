@@ -29,7 +29,7 @@ Dieses Dokument listet solche Bibelstellen auf – gut geeignet für Predigten, 
    > _„So wie ich es gesehen habe: Die Unheil pflügen und Mühsal säen, die ernten es.“_
 
 4. ### Sprüche 26,27 (HFA)
-   > _„Wer einen Stein rollt, bekommt ihn auf sich selbst zurück; wer eine Grube gräbt, fällt hinein.“_
+   > _„Wer anderen eine Grube gräbt, fällt selbst hinein; und wer mit Steinen wirft, wird selbst getroffen!“_
 
 5. ### Römer 2,6 (NGÜ)
    > _„Gott wird jedem das geben, was er für sein Tun verdient hat.“_
