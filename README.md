@@ -11,7 +11,7 @@ Dieses Dokument listet solche Bibelstellen auf – gut geeignet für Predigten, 
 ## 🔑 Zentrale Bibelstelle
 
 ### Galater 6,7–8 (HFA)
-> _„Lasst euch nicht täuschen: Gott lässt sich nicht verhöhnen. Denn was der Mensch sät, das wird er auch ernten. Wer nur für seine eigene sündhafte Natur lebt, wird von ihr nur Verderben ernten; wer aber für den Geist lebt, wird vom Geist ewiges Leben ernten.“_
+> _„Meint nur nicht, ihr könntet euch über Gott lustig machen! Denn was der Mensch sät, das wird er auch ernten: Wer sich nur auf sich selbst verlässt, den erwartet der ewige Tod. Wer sich aber durch den Geist Gottes führen lässt, der wird durch ihn ewiges Leben empfangen.“_
 
 ➡️ Die bekannteste „Karma-artige“ Botschaft der Bibel.
 
@@ -20,31 +20,31 @@ Dieses Dokument listet solche Bibelstellen auf – gut geeignet für Predigten, 
 ## 📖 Weitere biblische Aussagen
 
 1. ### Sprüche 1,31 (NGÜ)
-   > _„Sie sollen den Lohn ihrer Wege genießen und nach dem Maß ihrer Ränke vollends satt werden.“_
+   > _„Darum sollen sie auch die Frucht ihres Verhaltens ernten, und an ihren eigenen Ratschlägen sollen sie sich satt essen.“_
 
 2. ### Psalm 7,15–16 (HFA)
-   > _„Wer eine Grube gräbt, fällt selbst hinein; wer einen Stein rollt, bekommt ihn auf sich selbst zurück.“_
+   > _„Ein Mensch, der Gott ablehnt, trägt Bosheit in sich und brütet immer neues Unheil aus. Nichts als Lügen bringt er zur Welt! Doch wer anderen eine Grube gräbt, fällt selbst hinein. 17 Das Unheil, das er anderen bereitet hat, trifft ihn schließlich selbst; er wird zum Opfer seiner eigenen Bosheit.“_
 
 3. ### Hiob 4,8 (ELB)
-   > _„Wie ich es sah, die Pflüger Ungerechtigkeit und die Säter Trübsal ernten sie.“_
+   > _„So wie ich es gesehen habe: Die Unheil pflügen und Mühsal säen, die ernten es.“_
 
 4. ### Sprüche 26,27 (HFA)
    > _„Wer einen Stein rollt, bekommt ihn auf sich selbst zurück; wer eine Grube gräbt, fällt hinein.“_
 
 5. ### Römer 2,6 (NGÜ)
-   > _„Er wird jedem Menschen geben, was seine Taten verdienen.“_
+   > _„Gott wird jedem das geben, was er für sein Tun verdient hat.“_
 
 6. ### Matthäus 16,27 (HFA)
-   > _„Der Menschensohn wird mit seinen Engeln kommen und dann jedem Menschen vergelten, wie es seine Taten verdienen.“_
+   > _„Denn der Menschensohn wird mit seinen Engeln in der Herrlichkeit seines Vaters kommen und jedem das geben, was er für seine Taten verdient.“_
 
 7. ### Offenbarung 2,23 (HFA)
-   > _„Ich allein kann die Nieren und Herzen durchschauen. Ich werde jedem von euch vergelten, wie es seine Taten verdienen.“_
+   > _„Alle ihre Anhänger werde ich dem Tod ausliefern. Dann werden alle Gemeinden wissen, dass ich die Menschen durch und durch kenne, selbst ihre geheimsten Gedanken und Wünsche. Und ich werde jeden von euch nach dem richten, was er getan hat.“_
 
 8. ### Sprüche 11,18 (HFA)
-   > _„Wer Unrecht säht, der erntet nichts als Schaden; wer aber recht sät, empfängt gewisse Belohnung.“_
+   > _„Wer Gott missachtet, sammelt nur trügerischen Gewinn; wer Gott treu bleibt, erhält beständigen Lohn.“_
 
-9. ### Jesaja 3,11 (LUT)
-   > _„Wehe dem Sünder, dem es übel ergehen wird; denn was seine Hände verdient haben, wird man ihm antun.“_
+9. ### Jesaja 3,11 (LUT 2017)
+   > _„Wehe aber den Gottlosen, sie haben es schlecht! Denn wie sie handeln, wird ihnen vergolten.“_
 
 ---
 
