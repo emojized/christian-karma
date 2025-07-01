@@ -19,13 +19,13 @@ Er leidet schrecklich und fragt Gott nach dem Warum. Doch statt Antworten bekomm
 
 Am Ende sagt er:
 
-> **Hiob 1,21b (HFA)**
-> _„Der Herr hat gegeben, der Herr hat genommen. Lob sei dem Namen des Herrn!“_
+> **Hiob 1,21b (LUTHER 2017)**
+> _„Der HERR hat’s gegeben, der HERR hat’s genommen; der Name des HERRN sei gelobt!“_
 
 Und später:
 
 > **Hiob 42,5–6 (HFA)**
-> _„Früher habe ich nur vom Hörensagen von dir gewusst, jetzt aber sehen mich meine Augen. Darum verachte ich mich und tue Buße in Staub und Asche.“_
+> _„Herr, ich kannte dich nur vom Hörensagen, jetzt aber habe ich dich mit eigenen Augen gesehen! Darum widerrufe ich meine Worte, ich bereue in Staub und Asche!“_
 
 ---
 
@@ -62,17 +62,17 @@ Hiob sagt:
 ➡️ Akzeptanz von Gottes Hand in allen Lebenslagen.
 
 ### 2. **Hiob 13,15**
-> _„Doch will ich auf ihn hoffen, will vor ihm mein Leben verteidigen.“_
+> _„Gewiss wird Gott mich töten, dennoch vertraue ich auf ihn, denn ich will mein Leben vor ihm verantworten.“_
 
 ➡️ Selbst im Leiden: Ich bleibe bei Gott.
 
 ### 3. **Hiob 19,25**
-> _„Denn ich weiß: Mein Erlöser lebt!“_
+> _„Doch eines weiß ich: Mein Erlöser lebt; auf dieser todgeweihten Erde spricht er das letzte Wort“_
 
 ➡️ Hoffnung mitten im Dunkel.
 
 ### 4. **Hiob 42,5–6**
-> _„Früher habe ich nur vom Hörensagen von dir gewusst, jetzt aber sehen mich meine Augen. Darum verachte ich mich und tue Buße in Staub und Asche.“_
+> _„Herr, ich kannte dich nur vom Hörensagen, jetzt aber habe ich dich mit eigenen Augen gesehen! Darum widerrufe ich meine Worte, ich bereue in Staub und Asche!“_
 
 ➡️ Tiefe Umkehr und Demut vor Gott.
 
@@ -108,4 +108,4 @@ Die Geschichte von Hiob ist ein starkes Zeugnis dafür, wie man **die Dinge so a
 
 MIT License  
 (c) 2025 emojized.com  
-Frei verwendbar und weiterverbreitbar unter Namensnennung
+Frei verwendbar und weiterverbreitbar
